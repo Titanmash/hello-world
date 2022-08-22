@@ -1,0 +1,1 @@
+Making sure that you fully understand the work as this will help with solving problems in the fututre relating to what one did.
